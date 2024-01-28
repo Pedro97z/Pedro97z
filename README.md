@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi friends 🙌
 
 <!--
 **Pedro97z/Pedro97z** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
