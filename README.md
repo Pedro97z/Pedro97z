@@ -1,4 +1,4 @@
-# Hi friends 🙌 I'm Pedro Zuñiga
+# Hi, I'm Pedro Zuñiga 🙌
 
 🚶‍♂️ I'm an aspiring data scientist and artificial intelligence specialist.
 
